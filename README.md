@@ -1,0 +1,2 @@
+# G1F021050_FadhlurRohmanAlRosyiq_CSLL.cpp
+G1F021050_Fadhlur Rohman Al Rosyiq_CSLL.cpp_Sistem Informasi_Universitas Bengkulu
